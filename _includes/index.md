@@ -23,12 +23,3 @@ I'd like to mention [Don't Make Me Think](http://www.amazon.com/Dont-Make-Think-
 ## Tyler McNally
 
 ...
-
-## Leonard Medlock
-
-...
-
-## Tony Wan
-
-...
-
