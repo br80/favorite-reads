@@ -2,7 +2,7 @@ This page is used to teach GitHub and Markdown to non-technical members at EdSur
 
 ## Shu Uesugi
 
-My favorite read was [Don't Make Me Think](http://www.amazon.com/Dont-Make-Think-Revisited-Usability-ebook/dp/B00HJUBRPG).
+I'd like to mention [Don't Make Me Think](http://www.amazon.com/Dont-Make-Think-Revisited-Usability-ebook/dp/B00HJUBRPG) as one of my favorite reads. The best design book for non-designers.
 
 ## Christina Quattrocchi
 
