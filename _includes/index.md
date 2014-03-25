@@ -23,6 +23,7 @@ I'd like to mention [Don't Make Me Think](http://www.amazon.com/Dont-Make-Think-
 ## Tyler McNally
 
 ...If you read the following books:
+
 - [Tech Revolutions and Financial Capital](http://www.amazon.com/Technological-Revolutions-Financial-Capital-Dynamics/dp/1843763311)
 - [Who Owns the Future?](http://www.amazon.com/Who-Owns-Future-Jaron-Lanier/dp/1451654960)
 - [Race Against The Machine: How the Digital Revolution is Accelerating Innovation, Driving Productivity, and Irreversibly Transforming Employment and the Economy](http://www.amazon.com/Race-Against-The-Machine-Accelerating-ebook/dp/B005WTR4ZI)
