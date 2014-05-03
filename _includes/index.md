@@ -21,6 +21,18 @@ Do read: George Akerlof's [Nobel Prize Winning lecture: On the Market for Lemons
 
 ...
 
+## Rebecca Butler
+
+... 
+
+## Helen Resor
+
+...
+
+## Katrina Stevens
+
+...
+
 ## Tyler McNally
 
 ...If you read the following books:
