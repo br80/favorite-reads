@@ -9,6 +9,7 @@ I'd like to mention [Don't Make Me Think](http://www.amazon.com/Dont-Make-Think-
 ...
 
 ## Betsy Corcoran
+Do read: George Akerlof's [Nobel Prize Winning lecture: On the Market for Lemons](http://www.nobelprize.org/nobel_prizes/economic-sciences/laureates/2001/akerlof-article.html). And then treat yourself and check out George Anders' [The Benjamins.](http://www.amazon.com/The-Benjamins-George-Anders-ebook/dp/B00IV06NIE/ref=sr_1_1?ie=UTF8&qid=1399075215&sr=8-1&keywords=george+anders+the+benjamins)
 
 ...
 
