@@ -44,3 +44,8 @@ Do read: George Akerlof's [Nobel Prize Winning lecture: On the Market for Lemons
 You may no longer be excited about technology.
 
 Mind *blown*
+
+
+## Brady Fukumoto
+
+I want to be [Richard](http://www.amazon.com/Surely-Feynman-Adventures-Curious-Character/dp/0393316041/) [Feynman](http://www.amazon.com/What-Care-Other-People-Think/dp/0393320928/) when I grow up.
